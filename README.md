@@ -1,5 +1,7 @@
 &nbsp;<div align="center">
 
+$${\color{orange}We \space do \space make \space quite \space the \space duo..}$$
+
 [![Untitled1385-20260103113328.png](https://i.postimg.cc/yYZR9cSS/Untitled1385-20260103113328.png)](https://postimg.cc/SJmjbXdy)
 
 [![Untitled1384-20260102211605.png](https://i.postimg.cc/cLTWjDzh/Untitled1384-20260102211605.png)](https://postimg.cc/Yv4TLxML)
@@ -8,7 +10,7 @@
 &nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=red&label=Let's+Play+a+Game..)
 
-<ins>All art is drawn by me</ins>
+<ins>$${\color{orange}All \space art \space is \space drawn \space by \space me.}$$</ins>
 <div>
   
 &nbsp;<div align="center">
