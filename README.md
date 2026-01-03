@@ -11,6 +11,8 @@ $${\color{orange}We \space do \space make \space quite \space the \space duo..}$
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=red&label=Let's+Play+a+Game..)
 
 <ins>$${\color{orange}All \space art \space is \space drawn \space by \space me.}$$</ins>
+
+[RENTRY](https://rentry.co/iceye) 𓏵 [ATABOOK](https://zero-horizons.atabook.org/)
 <div>
   
 &nbsp;<div align="center">
