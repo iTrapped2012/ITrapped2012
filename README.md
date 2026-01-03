@@ -7,6 +7,8 @@
 
 &nbsp;<div align="center">
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=red&label=Let's+Play+a+Game..)
+
+<ins>All art is drawn by me</ins>
 <div>
   
 &nbsp;<div align="center">
