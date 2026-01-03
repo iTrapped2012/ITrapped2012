@@ -14,7 +14,11 @@ $${\color{orange}"We \space do \space make \space quite \space the \space duo.."
 
 $${\color{orange}All \space art \space is \space drawn \space by \space me. \space \color{yellow}Ask \space for \space inspiration. \space \color{orange} I \space don't \space bite!}$$
 
-[RENTRY](https://rentry.co/iceye) 𓏵 [ATABOOK](https://zero-horizons.atabook.org/) 𓏵 [PRNS.CC](https://pronouns.cc/@RADIANT_DAY) 
+[NEW RENTRY](https://rentry.co/iceye) 𓏵 [ATABOOK](https://zero-horizons.atabook.org/) 𓏵 [PRNS.CC](https://pronouns.cc/@RADIANT_DAY) 𓏵 [ROBLOX ACC](https://www.roblox.com/users/7809493979/profile) 
+
+(⸝⸝> ᴗ•⸝⸝) ᡕᠵデᡁ᠊╾━ 💥
+
+🐰 [Aubree](https://github.com/sspacedoutz) I'm not $${\color{red}BIG}$$, YOU ARE!! $${\color{orange}PS: \space I'm \space not \space giving \space you \space any \space money \space HAHA}$$
 <div>
   
 &nbsp;<div align="center">
