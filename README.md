@@ -47,8 +47,5 @@ $${\color{yellow}☆ Used \space to \space known \space as}$$ @ZEROHORIZONS, @bu
 <img width="99" height="56" alt="17674765622221643414630025558524" src="https://github.com/user-attachments/assets/4ab424f1-903e-4ac0-84e6-b217d6aa8e6f" />
 <img width="99" height="56" alt="17674766138362078391945606621252" src="https://github.com/user-attachments/assets/72b025f7-9247-4470-bd9f-c0c2dab9d8b4" />
 <img width="99" height="56" alt="17674766525185361284410835554245" src="https://github.com/user-attachments/assets/c2315931-505a-4758-8aac-e40c6a2475c6" />
-![17674767668876820840360262450622](https://github.com/user-attachments/assets/4ad872b4-82d4-4674-9f10-44b0850ee33f)
-
-
 
 </div>
