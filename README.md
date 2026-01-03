@@ -22,7 +22,7 @@ $${\color{orange}All \space art \space is \space drawn \space by \space me. \spa
 
 $${\color{yellow}☆ Used \space to \space known \space as}$$ @ZEROHORIZONS, @bulletsvanity
 
-[NEW RENTRY](https://rentry.co/iceye) 𓏵 [ATABOOK](https://zero-horizons.atabook.org/) 𓏵 [PRNS.CC](https://pronouns.cc/@RADIANT_DAY) 𓏵 [ROBLOX ACC](https://www.roblox.com/users/7809493979/profile) 
+[NEW RENTRY](https://rentry.co/iceye) 𓏵 ['OLD BUT HAS EXT' RENTRY](https://rentry.co/contracteeshusband) 𓏵 [ATABOOK](https://zero-horizons.atabook.org/) 𓏵 [PRNS.CC](https://pronouns.cc/@RADIANT_DAY) 𓏵 [ROBLOX ACC](https://www.roblox.com/users/7809493979/profile) 
 
 ![17674761604358218901850577516830](https://github.com/user-attachments/assets/06203a71-0467-4fb8-862d-ace60a5df23f)
 ![17674762292612156774882918413794](https://github.com/user-attachments/assets/7c5fbf6a-e665-4942-a0fb-99caac3e0640)
