@@ -1,4 +1,7 @@
 &nbsp;<div align="center">
+Shout out to my 300th follower
+
+[![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
 
 $${\color{white}No.1 \space \color{yellow} Contractee \space fan \space / \space yumeshipper}$$
 
