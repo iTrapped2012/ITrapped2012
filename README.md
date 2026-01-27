@@ -22,7 +22,7 @@ $${\color{pink}Arms \space Tonite \space by \space}$$ $${\color{purple}Mother \s
 </div>
 
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ)  ![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-purple)
 
 ![](https://files.catbox.moe/rxvrpj.gif)
 
