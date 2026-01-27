@@ -22,7 +22,7 @@ $${\color{pink}Arms \space Tonite \space by \space}$$ $${\color{purple}Mother \s
 </div>
 
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=HEADSPACE)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ)
 
 ![](https://files.catbox.moe/rxvrpj.gif)
 
