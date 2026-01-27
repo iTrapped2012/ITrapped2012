@@ -11,6 +11,12 @@ $${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space
 
 ![](https://files.catbox.moe/ywxiov.jpg)
 
+![](https://files.catbox.moe/zm40zm.gif)
+![](https://adriansblinkiecollection.neocities.org/12.gif)
+![](https://adriansblinkiecollection.neocities.org/g95.gif)
+![](https://adriansblinkiecollection.neocities.org/57.gif)
+![](https://adriansblinkiecollection.neocities.org/e65.gif)
+
 $${\color{pink}Arms \space Tonite \space by \space}$$ $${\color{purple}Mother \space Mother}$$
 
 </div>
