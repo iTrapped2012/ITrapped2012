@@ -1,5 +1,5 @@
 &nbsp;<div align="center">
-![](https://files.catbox.moe/n5rlw3.png)
+# ![](https://files.catbox.moe/n5rlw3.png)
 
 <ins> sign my [atabook](https://zero-horizons.atabook.org/).</ins>
 
@@ -9,7 +9,7 @@ $${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space
 
 ![](https://files.catbox.moe/rxvrpj.gif)
 
-![](https://files.catbox.moe/ywxiov.jpg)
+# ![](https://files.catbox.moe/ywxiov.jpg)
 
 ![](https://files.catbox.moe/zm40zm.gif)
 ![](https://adriansblinkiecollection.neocities.org/12.gif)
@@ -22,7 +22,9 @@ $${\color{pink}Arms \space Tonite \space by \space}$$ $${\color{purple}Mother \s
 </div>
 
 &nbsp;<div align="center">
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ)  ![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-purple)
+![Label](https://img.shields.io/badge/COOLEST.PILOT!-pink)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ) 
+![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-purple)
 
 ![](https://files.catbox.moe/rxvrpj.gif)
 
