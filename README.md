@@ -3,7 +3,7 @@
 
 <ins> sign my [atabook](https://zero-horizons.atabook.org/).</ins>
 
-I go by many names! I don't have a preference! 
+I go by many names! I don't have a preference! ***<ins>LESS ACTIVE B/C OF SCHOOL</ins>***
 
 $${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space yumeshipper}$$
 
