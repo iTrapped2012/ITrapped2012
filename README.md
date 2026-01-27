@@ -1,9 +1,7 @@
 &nbsp;<div align="center">
 <ins> sign my [atabook](https://zero-horizons.atabook.org/).</ins>
 
-[![images-(5).jpg](https://i.postimg.cc/59RbWG3w/images-(5).jpg)](https://postimg.cc/K4Bdn0Cz)
-[![images-(4).jpg](https://i.postimg.cc/3wtJ4wgn/images-(4).jpg)](https://postimg.cc/Y4mwTMDW)
-[![omoaa.png](https://i.postimg.cc/hPv51581/omoaa.png)](https://postimg.cc/ppNC2k6m)
+CURENTLY REVAMPING PLS 
 
 $${\color{white}No.1 \space \color{white} Contractee \space fan \space / \space yumeshipper}$$
 
