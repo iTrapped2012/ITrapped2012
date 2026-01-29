@@ -1,7 +1,7 @@
 &nbsp;<div align="center">
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/a57.png)
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=F38AFF&center=true&width=450&lines=%E2%80%98>>WELCOME!%E2%80%99"/>
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=F38AFF&center=true&width=450&lines=%E2%80%98>>WELCOME!%E2%80%99;%E2%80%98SCROLL!%E2%80%99"/>
 ![](https://adriansblinkiecollection.neocities.org/stamps/k39.gif)
 
 # ![](https://files.catbox.moe/n5rlw3.png)
@@ -46,6 +46,10 @@ Shout out to my 300th follower
 [![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
 
 ![](https://files.catbox.moe/n5rlw3.png)
+
+#BUFF ehehhahshsqq
+
+[![Screenshot-2026-01-29-065339.png](https://i.postimg.cc/d000MqkF/Screenshot-2026-01-29-065339.png)](https://postimg.cc/qN9ryHxD)
 
 ![](https://files.catbox.moe/sicg24.jpg)
 <div>
