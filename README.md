@@ -8,6 +8,10 @@
 
 <ins> sign my [atabook](https://zero-horizons.atabook.org/).</ins>
 
+[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile) 
+
+new rentry soon. 
+
 I go by many names! I don't have a preference! ***<ins>LESS ACTIVE B/C OF SCHOOL</ins>***
 
 $${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space yumeshipper}$$
