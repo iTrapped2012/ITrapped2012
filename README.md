@@ -51,6 +51,9 @@ Shout out to my 300th follower
 
 ![](https://files.catbox.moe/n5rlw3.png)
 
+hey [captain](https://GitHub.com/CaptainSweeper) 
+[![Screenshot_20260201_180455.png](https://i.postimg.cc/ZnrygPqT/Screenshot_20260201_180455.png)](https://postimg.cc/30xR0vp6)[![Screenshot_20260201_180437.png](https://i.postimg.cc/hv97w8GK/Screenshot_20260201_180437.png)](https://postimg.cc/Wq13qkry)[![Screenshot_20260201_180429.png](https://i.postimg.cc/x8Kb7Gdj/Screenshot_20260201_180429.png)](https://postimg.cc/rRwmRrW7)[![Screenshot_20260201_180233.png](https://i.postimg.cc/zvnRMwf1/Screenshot_20260201_180233.png)](https://postimg.cc/JHznHkJT)
+
 #BUFF ehehhahshsqq
 
 [![Screenshot-2026-01-29-065339.png](https://i.postimg.cc/d000MqkF/Screenshot-2026-01-29-065339.png)](https://postimg.cc/qN9ryHxD)
