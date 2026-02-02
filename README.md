@@ -59,4 +59,9 @@ hey [captain](https://GitHub.com/CaptainSweeper)
 [![Screenshot-2026-01-29-065339.png](https://i.postimg.cc/d000MqkF/Screenshot-2026-01-29-065339.png)](https://postimg.cc/qN9ryHxD)
 
 ![](https://files.catbox.moe/sicg24.jpg)
-<div>
+
+my brother drew me this, he's so talented! 
+
+[![IMG-20260201-214055.jpg](https://i.postimg.cc/FzpTfCfx/IMG-20260201-214055.jpg)](https://postimg.cc/9w4dKpY4)
+
+</div>
