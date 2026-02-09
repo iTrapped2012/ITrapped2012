@@ -6,7 +6,7 @@
 
 # ![](https://files.catbox.moe/n5rlw3.png)
 
-<ins> sign my [Atabook](https://contracteeforsaken.atabook.org/) and by [Wall of Text](https://walloftext.co/contractee)</ins>
+<ins> sign my [Atabook](https://contracteeforsaken.atabook.org/) and my [Wall of Text](https://walloftext.co/contractee)</ins>
 
 [Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile)
 
