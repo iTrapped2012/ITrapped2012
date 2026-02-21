@@ -8,17 +8,15 @@
 
 <ins> sign my [Atabook](https://contracteeforsaken.atabook.org/) and my [Wall of Text](https://walloftext.co/contractee)</ins>
 
-[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile)
-
-new rentry soon. 
+[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile) . new rentry soon. 
 
 I go by many names! I don't have a preference! ***<ins>LESS ACTIVE B/C OF SCHOOL</ins>***
 
-$${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space yumeshipper}$$
+$${\color{white}No.1 \space \color{white} Contractee \space fan \space / \space yumeshipper}$$
 
 ![](https://files.catbox.moe/rxvrpj.gif)
 
-# ![](https://files.catbox.moe/ywxiov.jpg)
+[![Screenshot-2026-02-21-111044.png](https://i.postimg.cc/Sx7YYPsb/Screenshot-2026-02-21-111044.png)](https://postimg.cc/Yv0CJbYd)
 
 ![](https://files.catbox.moe/zm40zm.gif)
 ![](https://adriansblinkiecollection.neocities.org/12.gif)
@@ -26,14 +24,16 @@ $${\color{white}No.1 \space \color{purple} Contractee \space fan \space / \space
 ![](https://adriansblinkiecollection.neocities.org/57.gif)
 ![](https://adriansblinkiecollection.neocities.org/e65.gif)
 
-$${\color{pink}Arms \space Tonite \space by \space}$$ $${\color{purple}Mother \space Mother}$$
+![](https://i.postimg.cc/ry9y4Q7q/Untitled2128-20230503135310.png)
+
+$${\color{white}I \space promise \space that \space such \space a \space world \space truly \space exists}$$
 
 </div>
 
 &nbsp;<div align="center">
-![Label](https://img.shields.io/badge/COOLEST.PILOT!-pink)
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=blue&label=FIGHTER+PILOTZ) 
-![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-purple)
+![Label](https://img.shields.io/badge/COOLEST.PILOT!-white)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=ETERNAL_TOURs) 
+![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-yellow)
 
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=20&duration=2500&pause=1000&color=D88AFF&center=true&width=450&lines=%E2%80%98>>an+unallowed+burden+has+been+placed%E2%80%99;%E2%80%98upon+you.%E2%80%99;%E2%80%98you+have+the+power+to+change+the+future.%E2%80%99"/>
 
@@ -50,18 +50,5 @@ Shout out to my 300th follower
 [![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
 
 ![](https://files.catbox.moe/n5rlw3.png)
-
-hey [captain](https://GitHub.com/CaptainSweeper) 
-[![Screenshot_20260201_180455.png](https://i.postimg.cc/ZnrygPqT/Screenshot_20260201_180455.png)](https://postimg.cc/30xR0vp6)[![Screenshot_20260201_180437.png](https://i.postimg.cc/hv97w8GK/Screenshot_20260201_180437.png)](https://postimg.cc/Wq13qkry)[![Screenshot_20260201_180429.png](https://i.postimg.cc/x8Kb7Gdj/Screenshot_20260201_180429.png)](https://postimg.cc/rRwmRrW7)[![Screenshot_20260201_180233.png](https://i.postimg.cc/zvnRMwf1/Screenshot_20260201_180233.png)](https://postimg.cc/JHznHkJT)
-
-#BUFF ehehhahshsqq
-
-[![Screenshot-2026-01-29-065339.png](https://i.postimg.cc/d000MqkF/Screenshot-2026-01-29-065339.png)](https://postimg.cc/qN9ryHxD)
-
-![](https://files.catbox.moe/sicg24.jpg)
-
-my brother drew me this, he's so talented! 
-
-[![IMG-20260201-214055.jpg](https://i.postimg.cc/FzpTfCfx/IMG-20260201-214055.jpg)](https://postimg.cc/9w4dKpY4)
 
 </div>
