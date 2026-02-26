@@ -8,7 +8,9 @@
 
 <ins> sign my [Atabook](https://contracteeforsaken.atabook.org/) and my [Wall of Text](https://walloftext.co/contractee)</ins>
 
-[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile) . new rentry soon. 
+[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile) . new INFO rentry soon. 
+
+hahhaa [my paper aka gourmand](https://github.com/gutbuckett) #bff #bsf4ever&5ever made [this rentry](https://rentry.co/enormousbloatedbelly) HE'S SO COOL!!
 
 ![](https://adriansblinkiecollection.neocities.org/buttons/a45.jpg)
  ***<ins>LESS ACTIVE B/C OF SCHOOL</ins>***
