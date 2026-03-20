@@ -1,59 +1,34 @@
 &nbsp;<div align="center">
+![](https://i.postimg.cc/vHXy5GdL/cat-holding-heart-pixel.gif) woahaha welcome to my humble abode.
 
-![](https://adriansblinkiecollection.neocities.org/stamps/a57.png)
-<img src="https://readme-typing-svg.demolab.com?font=Henny_Penny+SC&size=20&duration=2500&pause=1000&color=BABABA&center=true&width=450&lines=%E2%80%98Welcome..%E2%80%99;%E2%80%98SCROLL!%E2%80%99"/>
-![](https://adriansblinkiecollection.neocities.org/stamps/a74.png)
+![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif)
 
-# ![](https://files.catbox.moe/n5rlw3.png)
+waaah : [#bff](https://github.com/gutbuckett) <-Gourmand and the [emotional support buddy](https://github.com/dummyinbed) <-Ze ![](https://i.postimg.cc/tgs9Xwwd/angel-cat-pixel.gif)
 
-<ins> sign my [Atabook](https://contracteeforsaken.atabook.org/) and my [Wall of Text](https://walloftext.co/contractee)</ins>
+![](https://i.postimg.cc/k4rP74x9/cat-moving-side-to-side-pixel.gif) more of gng: [dirk ^_^](https://github.com/f3xabuse) woah [nick 0_0](https://github.com/orchestrafuI) :3c [tir!](https://github.com/tirgery123)! [noah](https://github.com/IHASAFACE-LULZ).
 
-[Prns.cc](https://pronouns.cc/@RADIANT_DAY) . [Roblox acc](https://www.roblox.com/users/7809493979/profile) . new INFO rentry soon. 
+![](https://adriansblinkiecollection.neocities.org/stamps/e67.png)![](https://adriansblinkiecollection.neocities.org/stamps/e89.jpg)![](https://adriansblinkiecollection.neocities.org/stamps/c12.png)![](https://adriansblinkiecollection.neocities.org/stamps/d2.gif)![](https://adriansblinkiecollection.neocities.org/stamps/a24.gif)![](https://adriansblinkiecollection.neocities.org/stamps/b6.png)
 
-hahhaa [my paper aka gourmand](https://github.com/gutbuckett) #bff #bsf4ever&5ever made [this rentry](https://rentry.co/enormousbloatedbelly) HE'S SO COOL!!
+![](https://giffiles.alphacoders.com/208/208879.gif)
 
-![](https://adriansblinkiecollection.neocities.org/buttons/a45.jpg)
- ***<ins>LESS ACTIVE B/C OF SCHOOL</ins>***
- ![](https://adriansblinkiecollection.neocities.org/buttons/f13.gif)
+[pronouns](https://pronouns.cc/@RADIANT_DAY). [roblox account](https://www.roblox.com/users/7809493979/profile). rentry soon.
 
-$${\color{white}No.1 \space \color{white} Contractee \space fan \space / \space yumeshipper}$$
 
-![](https://files.catbox.moe/rxvrpj.gif)
+$${\color{#5FC4D4}No.1 \space \color{#5FC4D4} Contractee \space fan \space / \space yumeshipper}$$
 
-[![Screenshot-2026-02-21-111044.png](https://i.postimg.cc/Sx7YYPsb/Screenshot-2026-02-21-111044.png)](https://postimg.cc/Yv0CJbYd)
-i drew this with my mousepad OOUGH i love 3utopia and Dev10 OUGUGUUGH
+![Label](https://img.shields.io/badge/Your_number_one_pilot.-white)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=debtors.) 
+![Label](https://img.shields.io/badge/contractee_lover-yellow)
 
-![](https://adriansblinkiecollection.neocities.org/y44.gif)
-![](https://adriansblinkiecollection.neocities.org/z14.gif)
-![](https://adriansblinkiecollection.neocities.org/k15.gif)
-![](https://adriansblinkiecollection.neocities.org/s13.gif)
-![](https://adriansblinkiecollection.neocities.org/e65.gif)
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=5FC4D4&center=true&width=450&lines=%E2%80%98Can't+give+it+up,+huh?%E2%80%99;"/>
 
-![](https://i.postimg.cc/ry9y4Q7q/Untitled2128-20230503135310.png)
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98Same+as+you+can't+give+up+him.%E2%80%99;"/>
 
-$${\color{white}I \space hope \space the \space world \space I \space create \space is \space perfect \space enough.}$$
+![](https://adriansblinkiecollection.neocities.org/stamps/d83.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d23.png)![](https://adriansblinkiecollection.neocities.org/stamps/b37.gif)
 
-</div>
-
-&nbsp;<div align="center">
-![Label](https://img.shields.io/badge/COOLEST.PILOT!-white)
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=ETERNAL_TOURs) 
-![Label](https://img.shields.io/badge/I.LOVE.CONTRACTEE-yellow)
-
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=525252&center=true&width=450&lines=%E2%80%98Will+I+ever+be+able+to+see+such+a+world?%E2%80%99;"/>
-
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98I+promise,+such+a+world+truly+exists.%E2%80%99;"/>
-
-![](https://files.catbox.moe/rxvrpj.gif)
-
-$${\color{pink}Ask \space for \space inspiration. \space \color{white} I \space don't \space bite.}$$
-
-$${\color{white} Used \space to \space known \space as}$$ @ZEROHORIZONS, @bulletsvanity
+old users: @ZEROHORIZONS , @bulletsvanity
 
 Shout out to my 300th follower
 
 [![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
-
-![](https://files.catbox.moe/n5rlw3.png)
-
 </div>
