@@ -1,7 +1,9 @@
 &nbsp;<div align="center">
+![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
+
 ![](https://i.postimg.cc/vHXy5GdL/cat-holding-heart-pixel.gif) woahaha welcome to my humble abode.
 
-![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif)
+![](https://files.catbox.moe/d62igj.jpg)![](https://files.catbox.moe/3yjrlf.jpg)
 
 waaah : [#bff](https://github.com/gutbuckett) <-Gourmand and the [emotional support buddy](https://github.com/dummyinbed) <-Ze ![](https://i.postimg.cc/tgs9Xwwd/angel-cat-pixel.gif)
 
