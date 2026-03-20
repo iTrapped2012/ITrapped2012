@@ -11,7 +11,7 @@ waaah : [#bff](https://github.com/gutbuckett) <-Gourmand and the [emotional supp
 
 ![](https://giffiles.alphacoders.com/208/208879.gif)
 
-[pronouns](https://pronouns.cc/@RADIANT_DAY). [roblox account](https://www.roblox.com/users/7809493979/profile). rentry soon.
+[pronouns](https://pronouns.cc/@RADIANT_DAY). [roblox account](https://www.roblox.com/users/7809493979/profile). rentry soon. [atabook](https://contracteeforsaken.atabook.org). [wall of text](https://walloftext.co/contractee).
 
 
 $${\color{#5FC4D4}No.1 \space \color{#5FC4D4} Contractee \space fan \space / \space yumeshipper}$$
