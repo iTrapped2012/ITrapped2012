@@ -1,4 +1,5 @@
 &nbsp;<div align="center">
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98Kiss+me+with+your+eyes+closed!%E2%80%99;"/>
 
 ![Label](https://img.shields.io/badge/Your_number_one_pilot.-EDE7D8)
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=141414&label=cool_people.) 
@@ -8,9 +9,18 @@
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=5FC4D4&center=true&width=450&lines=%E2%80%98Kiss+me!%E2%80%99;"/>
+꒰ hi [BUNKY.](https://github.com/ihasabunnylulz) #goattwins/duo #powerduo #sweetesttwins #unstabletwins
 
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98Kiss+me+with+your+eyes+closed!%E2%80%99;"/>
+yooo [bff](https://github.com/gutbuckett) this is a threat. ꒱
+
+<details><summary>this is my gng </summary><p>
+
+[Ze!](https://github.com/dummyinbed) ⋮ [Dirk!](https://github.com/f3xabuse) ⋮ [Tir!](https://github.com/tirgery123) ⋮ [Noah.](https://github.com/IHASAFACE-LULZ)
+
+#comfkitties
+
+</p>
+</details>
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/d83.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d23.png)![](https://adriansblinkiecollection.neocities.org/stamps/b37.gif)
 
