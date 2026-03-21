@@ -4,7 +4,7 @@
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
-waaah : [#bff #bsfs4&5](https://github.com/gutbuckett) <-Gourmand :3!! and the [emotional support buddy](https://github.com/dummyinbed) <-Ze!! ![](https://i.postimg.cc/tgs9Xwwd/angel-cat-pixel.gif)
+waaah : [#bff #bsfs4&5](https://github.com/gutbuckett) <-Gourmand :3!! and the [guy ever](https://github.com/dummyinbed) <-Ze!! ![](https://i.postimg.cc/tgs9Xwwd/angel-cat-pixel.gif)
 
 ![](https://i.postimg.cc/k4rP74x9/cat-moving-side-to-side-pixel.gif) more of gng: [dirk ^_^](https://github.com/f3xabuse) woah [nick 0_0](https://github.com/orchestrafuI) :3c [tir!](https://github.com/tirgery123)! [noah](https://github.com/IHASAFACE-LULZ). #comfkitties !!
 
