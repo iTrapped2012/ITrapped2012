@@ -1,37 +1,20 @@
 &nbsp;<div align="center">
 
-![](https://i.postimg.cc/vHXy5GdL/cat-holding-heart-pixel.gif) woahaha welcome to my humble abode.
+![Label](https://img.shields.io/badge/Your_number_one_pilot.-EDE7D8)
+![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=141414&label=debtors.) 
+![Label](https://img.shields.io/badge/contractee_lover-0A0A0A)
+
+[001.](https://pronouns.cc/@RADIANT_DAY) [002.](https://www.roblox.com/users/7809493979/profile) rentry soon. [004.](https://contracteeforsaken.atabook.org) [005.](https://walloftext.co/contractee)
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
-waaah : [#bff #bsfs4&5](https://github.com/gutbuckett) <-Gourmand :3!! and the [guy ever](https://github.com/dummyinbed) <-Ze!! ![](https://i.postimg.cc/tgs9Xwwd/angel-cat-pixel.gif)
-
-![](https://i.postimg.cc/k4rP74x9/cat-moving-side-to-side-pixel.gif) more of gng: [dirk ^_^](https://github.com/f3xabuse) woah [nick 0_0](https://github.com/orchestrafuI) :3c [tir!](https://github.com/tirgery123)! [noah](https://github.com/IHASAFACE-LULZ). #comfkitties !!
-
-MORE!! heh.. hi [BUNKY](https://github.com/ihasabunnylulz) ![](https://i.postimg.cc/QNmJYWpG/62383255-C3-CD-41-BC-8-CC6-FF3-ABA8-AAD4-E.gif) #GOATTWINS\DUO #POWERDUO #UNSTABLETWINS #SWEETESTTWINS !!
-
-and my lovely githubless girlfriend for being with me in my journey :3cc VCR !!
-
 ![](https://adriansblinkiecollection.neocities.org/stamps/e67.png)![](https://adriansblinkiecollection.neocities.org/stamps/e89.jpg)![](https://adriansblinkiecollection.neocities.org/stamps/c12.png)![](https://adriansblinkiecollection.neocities.org/stamps/d2.gif)![](https://adriansblinkiecollection.neocities.org/stamps/a24.gif)![](https://adriansblinkiecollection.neocities.org/stamps/b6.png)
 
-![](https://giffiles.alphacoders.com/208/208879.gif)
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=5FC4D4&center=true&width=450&lines=%E2%80%98Kiss+me!%E2%80%99;"/>
 
-[pronouns](https://pronouns.cc/@RADIANT_DAY). [roblox account](https://www.roblox.com/users/7809493979/profile). rentry soon. [atabook](https://contracteeforsaken.atabook.org). [wall of text](https://walloftext.co/contractee).
-
-
-$${\color{#5FC4D4}No.1 \space \color{#5FC4D4} Contractee \space fan \space / \space yumeshipper}$$
-
-![Label](https://img.shields.io/badge/Your_number_one_pilot.-white)
-![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=grey&label=debtors.) 
-![Label](https://img.shields.io/badge/contractee_lover-yellow)
-
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=5FC4D4&center=true&width=450&lines=%E2%80%98Can't+give+it+up,+huh?%E2%80%99;"/>
-
-<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98Same+as+you+can't+give+up+him.%E2%80%99;"/>
+<img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=19&duration=2500&pause=1000&color=F0F0F0&center=true&width=450&lines=%E2%80%98Kiss+me+with+your+eyes+closed!%E2%80%99;"/>
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/d83.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d18.gif)![](https://adriansblinkiecollection.neocities.org/stamps/d23.png)![](https://adriansblinkiecollection.neocities.org/stamps/b37.gif)
-
-old users: @ZEROHORIZONS , @bulletsvanity
 
 Shout out to my 300th follower
 
