@@ -11,13 +11,24 @@
 
 ꒰ hi [BUNKY.](https://github.com/ihasabunnylulz) #goattwins/duo #powerduo #sweetesttwins #unstabletwins
 
-yooo [bff](https://github.com/gutbuckett) this is a threat. ꒱
+yooo [bff](https://github.com/gutbuckett) this is a threat. I'm joking, ily brochacho. ꒱
 
 <details><summary>this is my gng </summary><p>
 
 [Ze!](https://github.com/dummyinbed) ⋮ [Dirk!](https://github.com/f3xabuse) ⋮ [Tir!](https://github.com/tirgery123) ⋮ [Noah.](https://github.com/IHASAFACE-LULZ)
 
 #comfkitties
+
+</p>
+</details>
+
+<details><summary>other </summary><p>
+
+#ilmgf #ilmgfsm I love my girlfriend okay? #ilmfs #ilmfssm
+
+flirting with me = nail & hammer
+
+![](https://files.catbox.moe/3yjrlf.jpg)
 
 </p>
 </details>
@@ -33,4 +44,5 @@ bunky, me, and gourmand
 Shout out to my 300th follower
 
 [![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
+
 </div>
