@@ -39,7 +39,7 @@ flirting with me = nail & hammer
 
 ![](https://adriansblinkiecollection.neocities.org/stamps/e67.png)![](https://adriansblinkiecollection.neocities.org/stamps/e89.jpg)![](https://adriansblinkiecollection.neocities.org/stamps/c12.png)![](https://adriansblinkiecollection.neocities.org/stamps/d2.gif)![](https://adriansblinkiecollection.neocities.org/stamps/a24.gif)![](https://adriansblinkiecollection.neocities.org/stamps/b6.png)
 
-bunky, me, and gourmand
+BUNKY, ME, GOURMAND .
 
 ![](https://files.catbox.moe/8kgysp.png)
 
