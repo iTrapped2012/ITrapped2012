@@ -11,9 +11,7 @@ $${\color{blue}-Konata \space Izumi}$$
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
-꒰ hi [BUNKY.](https://github.com/ihasabunnylulz) #goattwins/duo #powerduo #sweetesttwins #unstabletwins
-
-yooo [bff](https://github.com/gutbuckett) this is a threat. I'm joking, ily brochacho. ꒱
+꒰ hi [BUNKYY](https://github.com/ihasabunnylulz) hi [GOURMAND!](https://github.com/gutbuckett) we are #UNSTABLETRIO. LOVE YOU GUYS!!! ꒱
 
 <details><summary>this is my gng </summary><p>
 
