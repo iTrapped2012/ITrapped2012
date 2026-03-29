@@ -47,4 +47,9 @@ Shout out to my 300th follower
 
 [![IMG-20260106-112752.jpg](https://i.postimg.cc/RZ8B6n0d/IMG-20260106-112752.jpg)](https://postimg.cc/TKrSB1g5)
 
+ok bunky. I SEE HOW IT IS. 
+![](https://files.catbox.moe/k3v3t3.png) 
+![](https://files.catbox.moe/bbqp8r.png) 
+![](https://files.catbox.moe/k3v3t3.png)
+![](https://files.catbox.moe/dnc04n.png) 
 </div>
