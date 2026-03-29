@@ -7,7 +7,7 @@ $${\color{blue}-Konata \space Izumi}$$
 ![](https://komarev.com/ghpvc/?username=ZEROHORIZONS&color=141414&label=cool_people.) 
 ![Label](https://img.shields.io/badge/contractee_lover-0A0A0A)
 
-[001.](https://pronouns.cc/@RADIANT_DAY) [002.](https://www.roblox.com/users/7809493979/profile) rentry soon. [004.](https://contracteeforsaken.atabook.org) [005.](https://walloftext.co/contractee)
+[001.](https://pronouns.cc/@RADIANT_DAY) [002.](https://www.roblox.com/users/7809493979/profile) rentry soon. [ATA.](https://contracteeforsaken.atabook.org) [005.](https://walloftext.co/contractee)
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
