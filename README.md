@@ -1,3 +1,6 @@
+
+changing this when i have the energy, sorry for not being that online. i'm literally sick with this killer cough ok thanks.
+
 &nbsp;<div align="center">
 <img src="https://readme-typing-svg.demolab.com?font=Oswald+SC&size=14&duration=2500&pause=1000&color=4B71AB&center=true&width=450&lines=%E2%80%98I'm+stupid,+so+I+don't+have+to+worry+about+getting+the+flu.%E2%80%99;"/>
 
@@ -11,7 +14,7 @@ $${\color{blue}-Konata \space Izumi}$$
 
 ![](https://media.tenor.com/3XAEn1y2Da0AAAAM/lucky-star-miku.gif) 
 
-꒰ hi [BUNKYY](https://github.com/ihasabunnylulz) hi [GOURMAND!](https://github.com/gutbuckett) we are #UNSTABLETRIO. LOVE YOU GUYS!!! ꒱
+꒰ hi [BUNKYY](https://github.com/ihasabunnylulz) hi [GOURMAND!](https://github.com/gutbuckett) HEY [JACK](https://github.com/voxcest) AND MY LOVE @VCR!!! We are #UNSTABLEQUINTET LOVE YOU GUYS!!! ꒱
 
 <details><summary>this is my gng </summary><p>
 
